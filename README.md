@@ -1,3 +1,7 @@
+
+![image](https://github.com/IraitzTB/IraitzTB/assets/148058680/76f61ec7-e644-42dd-a5ba-8025fbdeaf25)
+por americo 
+
 ![foto](TheBridge_logo.png)
 
 - 👋 Hola, soy @IraitzTB
