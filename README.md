@@ -1,4 +1,4 @@
-![foto](mifoto.png)
+![foto](TheBridge_logo.png)
 
 - 👋 Hi, I’m @IraitzTB
 - 👀 I’m interested in ...
